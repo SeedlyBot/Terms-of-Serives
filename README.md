@@ -1,4 +1,4 @@
-# Terms-of-Serives
+# Terms of Serives
 
 Last Updated: 8/11/2025
 
